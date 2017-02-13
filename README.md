@@ -1,2 +1,2 @@
 hii friends 
-I dont anything about programming languages
+I dont know anything about programming languages
